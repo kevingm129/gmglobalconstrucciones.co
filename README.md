@@ -1,2 +1,0 @@
-# kevingm129.github.io
-GM GLOBAL CONSTRUCCIONES
